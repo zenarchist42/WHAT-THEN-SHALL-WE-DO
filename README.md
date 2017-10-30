@@ -6,9 +6,11 @@ How to collectively become God
 
 A zenarchist manifesto
 
+.
 
 What if human society as we know it were a person?
 
+.
 
 Assumptions: based on my personal relentless search for truth and meaning in the world
 A.	 As above, so below. As within, so without. 
