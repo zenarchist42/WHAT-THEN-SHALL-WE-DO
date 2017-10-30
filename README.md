@@ -13,6 +13,7 @@ What if human society as we know it were a person?
 .
 
 Assumptions: based on my personal relentless search for truth and meaning in the world
+
 A.	 As above, so below. As within, so without. 
 
 B.	The Tao is the way of nature. Nature is organized chaos. It exerts no effort, yet through it everything is done. Things opposed to the Tao tend to fail, die, and be miserable. 
@@ -20,9 +21,13 @@ B.	The Tao is the way of nature. Nature is organized chaos. It exerts no effort,
 C.	Karma (cause and effect) (see A). 
  
 1.	A decentralized yet interconnected and interdependent group of neurons firing randomly can be viewed as a single personality (If you’re reading this in the third dimension you are probably under the assumption that you are one).
+
 2.	Most human personalities are deluded to some level. The most common delusion is the idea that the voice inside one's head *is* the entire personality. We not only hear a voice in our head constantly, that we cannot control or shut off, but we identify entirely with it. We identify with our insanity. The inner voice is tyrannical, controlling, paralyzing, and according to the enlightened, entirely unnecessary. This view of the inner voice is not in line with the Tao. (B)
+
 3.	Mindfulness, or paying attention objectively, helps one to realize fairly quickly that the voice inside one's head is not the same as the personality as a whole. It also helps streamline a personality's values and goals with their actions and increases life satisfaction. This streamlining is in line with the Tao. (B)
+
 4.	A human personality can bring itself to the depths of hell: self hatred, self destruction, anger, fear, shame, alienation, suicide and harm to itself and others. At the other end of the spectrum, a personality can self actualize, even reaching states of pure bliss, tranquility, and equanimity, and compassion known as enlightenment. Enlightenment is achieved through mindfulness. Hell is achieved through mindlessness. (C)
+
 5.	Psychedelic drugs are proven to connect parts of the brain that are not usually connected. Neurons fire with neurons in different parts of the brain that usually do not fire together. 
 
 	a.	Psychedelic drugs accelerate karma (cause and effect). This means the effects of every thought are magnified by orders of magnitude.  Negative thoughts and atmosphere create feedback loops that develop quickly into hellish trips. Trips to hell can be extremely value to learn from if you face them head on, or they can break you if you don’t. Positive thoughts and atmosphere create feedback loops that develop quickly into healing experiences, freedom, understanding, bliss, tranquility, and even moments of enlightenment. They can even trigger spiritual awakening.
