@@ -1,7 +1,9 @@
 # WHAT-THEN-SHALL-WE-DO
-a zenarchist manifesto
+
 WHAT THEN SHALL WE DO
+
 How to collectively become God
+
 A zenarchist manifesto
 
 
