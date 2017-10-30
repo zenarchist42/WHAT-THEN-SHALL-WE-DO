@@ -20,11 +20,15 @@ C.	Karma (cause and effect) (see A).
 3.	Mindfulness, or paying attention objectively, helps one to realize fairly quickly that the voice inside one's head is not the same as the personality as a whole. It also helps streamline a personality's values and goals with their actions and increases life satisfaction. This streamlining is in line with the Tao. (B)
 4.	A human personality can bring itself to the depths of hell: self hatred, self destruction, anger, fear, shame, alienation, suicide and harm to itself and others. At the other end of the spectrum, a personality can self actualize, even reaching states of pure bliss, tranquility, and equanimity, and compassion known as enlightenment. Enlightenment is achieved through mindfulness. Hell is achieved through mindlessness. (C)
 5.	Psychedelic drugs are proven to connect parts of the brain that are not usually connected. Neurons fire with neurons in different parts of the brain that usually do not fire together. 
+
 	a.	Psychedelic drugs accelerate karma (cause and effect). This means the effects of every thought are magnified by orders of magnitude.  Negative thoughts and atmosphere create feedback loops that develop quickly into hellish trips. Trips to hell can be extremely value to learn from if you face them head on, or they can break you if you don’t. Positive thoughts and atmosphere create feedback loops that develop quickly into healing experiences, freedom, understanding, bliss, tranquility, and even moments of enlightenment. They can even trigger spiritual awakening.
+	
 	b.	Psychedelic drugs catalyze neuroplasticity and neurogenesis. They can catalyze lasting personality changes with nearly unrivaled efficiency. For good or bad. The accelerated karmic effects last orders of magnitude longer than the experience.
+	
 .
 .
 .
+
 
 I.	A decentralized yet interconnected and interdependent group of humans can be viewed as a meta-personality. This can be applied to any organized subgroup of society including religions, political ideologies, economic systems, fandoms, subreddits, and society as a whole. (1,A) Side note: what is a god but a meta personality?
 
@@ -46,6 +50,7 @@ VI.	Meta mindfulness in action: exercises.
   a.	Find out if polling on public opinion matches up to public policy. (hint: the inner voice is in charge of the polls. Many polls you see will be on issues that are important to the inner voice but not to society as a whole. many polls are prominent simply because they draw an emotional response or because they are divisive. Eyes on the big picture. HINT HINT: Start with things that are closest to unanimous agreement. HINT!!!!!!: start with public opinion on getting money out of politics). Let me know if this does not eradicate any belief you had in functioning democracy. Or a society that has streamlined its goals and values with its actions. Maybe I'll make a post with more details and sources for this.
   
   b.	Find out if society’s goals are the same as what society has determined creates happiness. Look at scientific studies of what actually makes people happy. Picture yourself asking society what it's goals are. See if the two are the same.
+  
   c.	What does meta mindfulness look like to you?
   
 VII.	If mindfulness can bring a human to enlightenment, meta mindfulness can bring a meta human to enlightenment. (4,A)
