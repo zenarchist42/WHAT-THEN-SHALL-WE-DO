@@ -19,6 +19,8 @@ A.	 As above, so below. As within, so without.
 B.	The Tao is the way of nature. Nature is organized chaos. It exerts no effort, yet through it everything is done. Things opposed to the Tao tend to fail, die, and be miserable. 
 
 C.	Karma (cause and effect) (see A). 
+
+.
  
 1.	A decentralized yet interconnected and interdependent group of neurons firing randomly can be viewed as a single personality (If you’re reading this in the third dimension you are probably under the assumption that you are one).
 
